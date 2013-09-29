@@ -1,3 +1,8 @@
+---
+layout: story
+title: The Secret Society of F.U.N.
+---
+
 # The Secret Society of F.U.N.
 
 ## Chapter 1
