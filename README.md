@@ -1,6 +1,6 @@
 # Stories
 
-This is my box of stories. Some of them are better than others.
+**This is my box of stories. Some of them are better than others.**
 
 ## The Secret Society of F.U.N.
 
@@ -8,4 +8,4 @@ This is my box of stories. Some of them are better than others.
 
 ## The Dragonfly party
 
-**Lila is a dragonfly. She can change into one at least. At the dragonfly party each dragonfly must present the dragonfly queen with a gift. What will Lila's gift be?**
+**Lila is a dragonfly. At the dragonfly party each dragonfly must present the dragonfly queen with a gift. What will Lila's gift be?**
