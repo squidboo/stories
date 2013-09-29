@@ -16,7 +16,17 @@ You look away, only to come face to face with a mirror. Hovering in front of you
 
 You open your mouth. Streams of toys flow from your lips. Out of your eyes come sweets. You are no monster. You weren't made to kill.
 
-## Chapter 2
+## Chapter 2                                                    
+
+At the opening of the Secret Society earlier that evening Sylcie had been terrified. Terrified. It was not her first time in a public spotlight, but it sure was the scariest.
+
+With the crowds hands pumping like mad, it was going to be hard to resist the urge to join them, watching in awe the opener of the Secret Society of F.U.N.!
+
+Crowds applauded wildly as she stepped on to the stage, and she was refuelled with confidence. She smiled and waved at the onlooking crowds. TV companies had refused her orders to stay away and flashed cameras and microphones all around. Security guards lined the stage, each with a snarling dog pulling at their leads. Time to cut the ribbon, the Secret Society of F.U.N. was open! So much for the cameras, and secrecy!
+
+Sylcie had introduced her idea of the smiley bots. They were meant to be for the purposes of good, to give sweets and toys to the lonely children in the world, not soldiers with the purpose of world domination.
+
+## Chapter 3
 
 In the tower where Sylcie is trapped, Smiley replays a message.
 
