@@ -1,10 +1,6 @@
 # The Secret Society of F.U.N.
 
-
-
 ## Chapter 1
-
-Fun fact: Did you know F.U.N. stands for Fun Unit of Natural happiness?
 
 "I can't see. I'm not scared. I can't hear! I'm not frightened. I can't feel! I'm not terrified! Is this what it's like to be dead? But if you're still here I can't be dead not really can I! No, I can't, you could have told me that, or maybe you couldn't? What are you anyway? You strange creature?! Look! A light! There, in the corner!" The light in the corner is a television. You could have told her that, you are a robot after all you know, not some interested reader looking at this story. So, let's get on with it.
 
@@ -17,8 +13,6 @@ You look away, only to come face to face with a mirror. Hovering in front of you
 I opened my mouth. Streams of toys flow from my mouth. Out of my eyes come sweets. I wasn't made to kill.
 
 ## Chapter 2
-
-Fun fact: The first ever smiley face bots were made by Sylcie.
 
 "When the smiley bots came nobody knows. Where they come from nobody knows. But me. You see, I'm a programmer. An engineer. I made the smiley bots. I know who they are. We'll go together, me, C.G. and the first smiley bot.
 
@@ -57,8 +51,6 @@ Sneaking into the control room I noticed there was no way to turn off the smiley
 He wired me up to the huge computer and set about doing all he could to change them. He made sweets and toys come out of them. He made them to be powered by happiness and to always be good. BUt most importantly he let them learn. A new species was created out of a kidnap and that was good.
 
 ## Epilouge
-
-Fun fact: Did you know that Smiley bots have been transported to different countries but are still classed under being a 'secret'!
 
 No 2 did not go down the toilet fortunately his plan did! He was sentenced to 10 years in prison. A community service he had to fulfil was putting together broken toys and making new sweets.
 
