@@ -17,6 +17,20 @@
   </head>
 
   <body>
-	{{ content }}
+    <header>
+      <div class="inner">
+        <h1>Stories</h1>
+        <h2>{{ page.title }}</h2>
+      </div>
+    </header>
+
+    <div id="content-wrapper">
+      <div class="inner clearfix">
+        <section id="main-content">
+          {{ content }}
+        </section>
+      </div>
+    </div>
+
   </body>
 </html>
