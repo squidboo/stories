@@ -1,18 +1,8 @@
 # The Secret Society of F.U.N.
 
+
+
 ## Chapter 1
-
-On the opening the secret society I was terrified. Terrified. Sure, this was not my first time in a public spotlight, but it was the scariest. Millions of people would be watching me! OK, maybe not millions, but thousands! Alright, alright! Perhaps I'm over-exaggerating, but heh! Life is hard being a child genius!
-
-With the crowds hands pumping like mad, it was going to be hard to resist the urge to join them, watching in awe the opener of the F.U.N. secret society! But, unfortunately I had a reputation to uphold, a chance to prove my great, great grandfather's blood still pumped through my veins. Great, great grandfather is a military tactist, or should I say *the* military tactist. Out-smarted those foolish Germans many a time he did, him and his automatic bombs, self-digging trenches and code-cracking machines, he had it all!
-
-Unfortunately he could not prevent fate, he died of a broken heart, they say, longing for the love of his life. Dead as a dead thing. Completely cold. But his bloodline still lives on. Through me.
-
-Anyway, enough of the chat, those smiley face curtains aren't going to wait! Stepping out through these curtains is the next big step of my life!
-
-Crowds applaud wildly as I stepped on to the stage, and I am refuelled with confidence. I smile and wave at the onlooking crowds, TV companies refusing my orders to stay away and flashing cameras and microphones all around. Several security guards line the stage, each with a snarling dog pulling at their leads. Time to cut the ribbon, the secret F.U.N. society is open! So much for the cameras, and secret indeed!
-
-## Chapter 2
 
 Fun fact: Did you know F.U.N. stands for Fun Unit of Natural happiness?
 
@@ -26,7 +16,7 @@ You look away, only to come face to face with a mirror. Hovering in front of you
 
 I opened my mouth. Streams of toys flow from my mouth. Out of my eyes come sweets. I wasn't made to kill.
 
-## Chapter 3
+## Chapter 2
 
 Fun fact: The first ever smiley face bots were made by Sylce.
 
@@ -66,7 +56,7 @@ Sneaking into the control room I noticed there was no way to turn off the smiley
 
 He wired me up to the huge computer and set about doing all he could to change them. He made sweets and toys come out of them. He made them to be powered by happiness and to always be good. BUt most importantly he let them learn. A new species was created out of a kidnap and that was good.
 
-## Chapter 4
+## Epilouge
 
 Fun fact: Did you know that Smiley bots have been transported to different countries but are still classed under being a 'secret'!
 
