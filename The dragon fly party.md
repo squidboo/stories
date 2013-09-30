@@ -36,4 +36,4 @@ When we finally reached the gates of the party, I was amazed when the Queen hers
 
 There was much happiness in the air when we finally gave our presents to the Queen. There were many presents &mdash; rare flowers, scented perfumes, and many types of jewellry &mdash; but none were as amazing as my presents. When I presented her with the spider silk dress, there was much oohing and aahing. The giant ruby itself got more than its share of attention. And indeed the eating of the honey cake was perhaps the most glorious eating experience ever known.
 
-But in fact the present that raised the most eyes was the reunion of the Queen and her son. I am extremely glad I found the perfect present.
+But in fact the present that raised the most eyebrows was the reunion of the Queen and her son. I am extremely glad I found the perfect present.
