@@ -10,9 +10,9 @@ We landed nimbly on a tall weed, and began to talk. Flyn, it seemed, was a trave
 
 ## Chapter 2
 
-I awoke to find I was stuck in an enormous spider web, stretching from the boughs of a birch tree. I could not remember how we had come to be here, but was glad I was with Flyn. Creeping towards us came a pompom with eight legs, black and furry. I recognised instantly the red stripes on its back, and realised it was poisonous. Before it managed to inject us with its deadly venom, it first asked us how we'd come to be in its web. Since we had no answer, he questionned why we were here at all and we told him our story. He listened with interest, then presented us with a spider silk dress.
+I awoke to find I was stuck in an enormous spider web, stretching from the boughs of a birch tree. I could not remember how we had come to be here, but was glad I was with Flyn. Creeping towards us came a pompom with eight legs, black and furry. I recognised instantly the red stripes on its back, and realised it was a poisonous spider. Before it managed to inject us with its deadly venom, it first asked us how we'd come to be in its web. Since we had no answer, he questionned why we were here at all and we told him our story. He listened with interest, then presented us with a spider silk dress.
 
-"You seem to be worthy of freedom, so I will let you go. Here is a present to the dragonfly queen."
+"Aswell as my own friendship with the dragonfiy queen, you seem to be worthy of freedom, so I will let you go. Here is my present to the dragonfly queen."
 
 ## Chapter 3
 
