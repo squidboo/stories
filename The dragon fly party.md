@@ -12,15 +12,15 @@ We landed nimbly on a tall weed, and began to talk. Flyn, it seemed, was a trave
 
 I awoke to find I was stuck in an enormous spider web, stretching from the boughs of a birch tree. I could not remember how we had come to be here, but was glad I was with Flyn. Creeping towards us came a pompom with eight legs, black and furry. I recognised instantly the red stripes on its back, and realised it was a poisonous spider. Before it managed to inject us with its deadly venom, it first asked us how we'd come to be in its web. Since we had no answer, he questionned why we were here at all and we told him our story. He listened with interest, then presented us with a spider silk dress.
 
-"Aswell as my own friendship with the dragonfiy queen, you seem to be worthy of freedom, so I will let you go. Here is my present to the dragonfly queen."
+"As well as my own friendship with the dragonfiy queen, you seem to be worthy of freedom, so I will let you go. Here is my present to the dragonfly queen."
 
 ## Chapter 3
 
-After this first strange encounter, I do not know why I was surprised when we met a massive ladybird, the size of a conker, hiding under a leaf. She asked us where we were going and where we had come from. We told her the same story we'd told the spider. She told us that he was having some awful trouble with some aphids. Unfortunately, because she was so large she could not get round quick enough to eat them all. She asked us if we would help her take them prisoner in her store and become food for later need. We agreed.
+After this first strange encounter, I do not know why I was surprised when we met a massive ladybird, the size of a conker, hiding under a leaf. She asked us where we were going and where we had come from. We told her the same story we'd told the spider. She told us that she was having some awful trouble with some aphids. Unfortunately, because she was so large she could not get round quick enough to eat them all. She asked us if we would help her take them prisoner in her store and become food for later need. We agreed.
 
 Soon, we had all the aphids rounded up and ready to be jarred. Fortunately, we had our own food so did not have to suffer the torment of munching on the green aphids.
 
-To show her gratitude, she gave us a rare and precious ladybird ruby, about the size of herself. She also gave us a leaf-sack to carry anything we needed. We enjoyed this hugely and took turns carrying the heavy sack.
+To show her gratitude, she gave us a rare and precious ladybird ruby, about the size of herself. She also gave us a leaf-sack to carry anything we needed. We gladly accepted this  and took turns carrying the heavy sack.
 
 ## Chapter 4
 
