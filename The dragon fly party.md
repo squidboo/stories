@@ -6,7 +6,13 @@ Sneaking through the bushes, I glimpsed the daddy-long-legs looming over his pre
 
 The daddy-long-legs let out a sinister cackle, grinning wildly as he pounced on the tasty morsel. Half overcome by fright, I leapt into action. Giving the daddy-long-legs a hard kick, while hovering on my delicate purple wings, I sent him sprawling across the grass. Rage seemed to consume him, for he dove on me like a kingfisher dives on a fish. Just in time, a conker flew through the air, striking the daddy-long-legs on the head. I turned around to see the bug I'd rescued, another dragonfly, hovering confidently above me. Not wanting to fight any longer, we whisked through the air, searching for a good resting spot.
 
-We landed nimbly on a tall weed, and began to talk. Flyn, it seemed, was a traveller, going this way and that searching for adventure. I told him that I was looking for a present to give to the dragonfly queen for a gift. He told me that, because it seemed a worthy adventure, he would join me.
+We landed nimbly on a tall weed, and began to talk.
+
+"Thank you for rescuing me," said the dragonfly. "My name is Flyn, and I am a traveller."
+
+"Well hello Flyn, my name is Lila, and I have come from the palace to find a present for the Queen Dragonfly," I replied. "I expect it to be hard, for finding the perfect present is surely not an easy task, and I'd be grateful for your help."
+
+"It seems a worthy adventure, and I would like to help you find the perfect present for the Queen Dragonfly."
 
 ## Chapter 2
 
